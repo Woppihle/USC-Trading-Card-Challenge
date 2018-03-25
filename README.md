@@ -1,1 +1,0 @@
-# USC-Trading-Card-Challenge
